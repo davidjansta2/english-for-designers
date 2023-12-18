@@ -1,5 +1,5 @@
 
-## **Project Examples:**
+## **My favorite project examples:**
 
 ### **YouTube Videos:**
 
