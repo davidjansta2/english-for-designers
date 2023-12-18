@@ -1,3 +1,4 @@
 # Content First
 ## Portfolio
-_ (../index.md)
+  - [Work](work/index.md)
+  - 
