@@ -1,1 +1,1 @@
-- [**David Jansta**](./) <!-- 
+- [**David Jansta**](./)
