@@ -1,4 +1,4 @@
-- [**David Jansta**](./)
+[**David Jansta**](./)
 ## Portfolio
    - [Work](work/index.md)
    - [Writing](writing/index.md)
