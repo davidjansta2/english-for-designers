@@ -2,7 +2,7 @@
 
 I've always been passionate about creating stuff. It didn't matter what kind, but I had to create, always. One of my biggest passions was creating videos.
 
-As a kid, I loved using my imagination. I made whole series of animated characters using just paper. When I was 8, I got a phone that could stop footage, and that's when I started making a bunch of episodes with superheroes like Spiderman and Ironman. I'm not exactly sure, but I think I made around 100 episodes.
+As a kid, I loved using my imagination. I made whole series of animated characters using just paper. When I was 8, I got a phone that could stop footage, and that's when I started making a bunch of episodes with superheroes like spider-man and iron man. I'm not exactly sure, but I think I made around 100 episodes.
 
 But that was just the beginning. I got really into making videos inspired by Criss Angel, a magician. I ended up creating five series of magic videos. Each series had 10-20 episodes lol. 
 
