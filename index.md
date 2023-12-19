@@ -11,9 +11,11 @@ I'm the kind of guy who's practically grown up with YouTube. Yep, been at it sin
 
 But it's not just about the years; it's about the journey.
 
-<img width="1498" alt="Snímek obrazovky 2023-12-19 005056" src="https://github.com/davidjansta2/english-for-designers/assets/153563532/22fb88a6-1229-4c7a-b206-b50152485845">
-<img width="1409" alt="Snímek obrazovky 2023-12-19 005435" src="https://github.com/davidjansta2/english-for-designers/assets/153563532/ece2896c-b58d-4ccc-b325-1210f8e051ea">
-<img width="1403" alt="Snímek obrazovky 2023-12-19 004941" src="https://github.com/davidjansta2/english-for-designers/assets/153563532/4c393222-6863-44e5-a68b-0c5628180d6e">
+<img width="1498" alt="Snímek obrazovky 2023-12-19 005056" src="https://github.com/davidjansta2/english-for-designers/assets/153563532/61c04a4b-792a-4889-bd36-86193a3b524f">
+
+<img width="1403" alt="Snímek obrazovky 2023-12-19 004941" src="https://github.com/davidjansta2/english-for-designers/assets/153563532/8f218833-b3c2-4c38-a369-8ba5f3bfa092">
+
+<img width="1409" alt="Snímek obrazovky 2023-12-19 005435" src="https://github.com/davidjansta2/english-for-designers/assets/153563532/fddfc73f-cd7e-4873-8981-37e0912f06e5">
 
 
 # ***Work:***
