@@ -29,7 +29,7 @@ This was my biggest client. I played a part in the Hamza channel's wild ride fro
 
 <img width="1424" alt="Young gigachad adonis workout" src="https://github.com/davidjansta2/english-for-designers/assets/153563532/0d0670de-690a-4308-97c4-935416db397d">
 
-And Hamza wasn’t the only big youtuber I worked with. The other big one was “Moon” with more than 1M subs.
+And Hamza wasn’t the only big youtuber I worked with.
 
 <img width="398" alt="Snímek obrazovky 2023-12-19 013037" src="https://github.com/davidjansta2/english-for-designers/assets/153563532/652f1a82-132c-4243-8073-58d0dc62cffe">
 
