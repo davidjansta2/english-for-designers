@@ -11,11 +11,10 @@ I'm the kind of guy who's practically grown up with YouTube. Yep, been at it sin
 
 But it's not just about the years; it's about the journey.
 
-![Snímek obrazovky 2023-12-19 005056.png](https://prod-files-secure.s3.us-west-2.amazonaws.com/f9a7459a-245f-422a-85a9-bd1d13859f50/5c1eb0ed-299f-4be7-981f-0e32e1da82ce/Snmek_obrazovky_2023-12-19_005056.png)
+<img width="1498" alt="Snímek obrazovky 2023-12-19 005056" src="https://github.com/davidjansta2/english-for-designers/assets/153563532/22fb88a6-1229-4c7a-b206-b50152485845">
+<img width="1409" alt="Snímek obrazovky 2023-12-19 005435" src="https://github.com/davidjansta2/english-for-designers/assets/153563532/ece2896c-b58d-4ccc-b325-1210f8e051ea">
+<img width="1403" alt="Snímek obrazovky 2023-12-19 004941" src="https://github.com/davidjansta2/english-for-designers/assets/153563532/4c393222-6863-44e5-a68b-0c5628180d6e">
 
-![Snímek obrazovky 2023-12-19 004941.png](https://prod-files-secure.s3.us-west-2.amazonaws.com/f9a7459a-245f-422a-85a9-bd1d13859f50/d1782149-a9fb-4603-b657-d8582f38b804/Snmek_obrazovky_2023-12-19_004941.png)
-
-![Snímek obrazovky 2023-12-19 005435.png](https://prod-files-secure.s3.us-west-2.amazonaws.com/f9a7459a-245f-422a-85a9-bd1d13859f50/3c3b9602-9403-4907-8d75-328bd263d574/Snmek_obrazovky_2023-12-19_005435.png)
 
 # ***Work:***
 
