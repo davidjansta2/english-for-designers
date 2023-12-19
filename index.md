@@ -56,7 +56,7 @@ And Hamza wasn’t the only big youtuber I worked with. The other big one was �
 ![david-jansta-wireframe (1)](https://github.com/davidjansta2/english-for-designers/assets/153563532/9ac31ae4-5823-457d-b33f-d24c0177e25c)
 ![david-jansta-4 (1)](https://github.com/davidjansta2/english-for-designers/assets/153563532/d5814aee-4438-40b5-a0fd-94d1f1b912d0)
 
-
+## BONUS SECTION
 And because I wasn’t able to create separate folders://, here’s everything else I had to include.
 
 ## 01-One-word
@@ -118,6 +118,3 @@ And Hamza wasn’t the only big youtuber I worked with. The other big one was �
 
 And because I wasn’t able to create separate folders://, here’s everything else I had to include.
 
-## 01-One-word
-
-## **02-First-impression**
